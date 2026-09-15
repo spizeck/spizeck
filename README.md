@@ -1,4 +1,4 @@
-# Hi, I'm Chad 👋
+# Hi, I'm Chad
 
 I'm a business owner and operator based on **Saba, Dutch Caribbean**.
 
